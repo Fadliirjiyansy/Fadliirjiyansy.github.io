@@ -1,1 +1,0 @@
-# Fadliirjiyansy.github.io
